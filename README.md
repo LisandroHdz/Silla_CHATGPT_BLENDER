@@ -26,5 +26,6 @@
 ## Contacto:
 
 Si tienes preguntas o comentarios, no dudes en contactarme.
+visita mi perfil en Printables: https://www.printables.com/es/model/698684-silla-con-prompt-de-chat-gpt-y-blender
 
 ¡Espero que disfrutes de tu silla moderna!
